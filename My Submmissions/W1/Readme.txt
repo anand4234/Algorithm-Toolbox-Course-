@@ -1,0 +1,1 @@
+A pretty fun week. No assignements :P
